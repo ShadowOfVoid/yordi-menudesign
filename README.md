@@ -1,1 +1,1 @@
-Yordi - Menu Design (www.fivemturk.com)
+Yordi - Menü Design (www.fivemturk.com)
